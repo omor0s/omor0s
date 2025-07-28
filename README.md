@@ -4,9 +4,13 @@
 ![Image Alt](https://github.com/omor0s/omor0s/blob/effc1755df9f61e56d250c27e5a02e522a52fd2f/download%20(2).jpg)
 
 omo -- any pronouns
+
 𓏵
+
 please,please!! do c+h and talk with me freely, i dont mind at all esp when im alone!!! T_T
+
 𓏵
+
 i change interests most of the time  and uujmmmm yeah:3
 
 [AtaBook](https://omor0s.atabook.org/)      .     [Strawpage](https://be4youinteract.straw.page) . [Help Palestine](https://arab.org/click-to-help/palestine/)
