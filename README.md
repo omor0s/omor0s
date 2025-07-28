@@ -5,4 +5,6 @@
 
 [AtaBook](https://omor0s.atabook.org/)      .     [Strawpage](https://be4youinteract.straw.page) . [Help Palestine](https://arab.org/click-to-help/palestine/)
 
+![Image Alt](https://github.com/omor0s/omor0s/blob/1bd43955b7b5b8f994899232fc7be47daf7ae892/Paycheck%20%5Bsorry%20i%20forgot%20to%20post%20it%2C%20it%20was%20drawn%20a%20long%20time%20ago%F0%9F%98%94%F0%9F%98%94%5D.jpg)
+
 ![Image Alt](https://github.com/omor0s/omor0s/blob/da6315bd224a7141c2f01aafe8f4f0f987368552/IMG_1192-fotor-20250728173449.png)
