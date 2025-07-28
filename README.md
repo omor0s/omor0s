@@ -3,15 +3,18 @@
 ![Image Alt](https://github.com/omor0s/omor0s/blob/6ab7d974a3c0850006bd2260532b6f9b2788564b/IMG_1192.png)
 ![Image Alt](https://github.com/omor0s/omor0s/blob/effc1755df9f61e56d250c27e5a02e522a52fd2f/download%20(2).jpg)
 
+
+
 omo -- any pronouns
 
 𓏵
 
-please,please!! do c+h and talk with me freely, i dont mind at all esp when im alone!!! T_T
+
+![Image Alt](https://github.com/omor0s/omor0s/blob/0f713aecb1de9e679d66445e6bf8532917d490f9/blinkiesCafe-Ty.gif)
 
 𓏵
 
-i change interests most of the time  and uujmmmm yeah:3
+i like talking to people,,,pls...talk to me....
 
 [AtaBook](https://omor0s.atabook.org/)      .     [Strawpage](https://be4youinteract.straw.page) . [Help Palestine](https://arab.org/click-to-help/palestine/)
 
