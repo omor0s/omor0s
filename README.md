@@ -13,7 +13,7 @@
 
 i like talking to people,,,pls...talk to me....
 
-[AtaBook](https://omor0s.atabook.org/)  ⟡    [Strawpage](https://be4youinteract.straw.page) ⟡ [Help Palestine](https://arab.org/click-to-help/palestine/)
+[AtaBook](https://omor0s.atabook.org/)  ⟡    [Strawpage(old)](https://be4youinteract.straw.page) ⟡ [Help Palestine](https://arab.org/click-to-help/palestine/)
 
 ![Image Alt](https://github.com/omor0s/omor0s/blob/1bd43955b7b5b8f994899232fc7be47daf7ae892/Paycheck%20%5Bsorry%20i%20forgot%20to%20post%20it%2C%20it%20was%20drawn%20a%20long%20time%20ago%F0%9F%98%94%F0%9F%98%94%5D.jpg)
 
