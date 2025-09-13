@@ -2,7 +2,7 @@
 
                                                          𓂃۶ৎ omo -- any pronouns >.<
 
-![Image Alt](https://github.com/omor0s/omor0s/blob/6ab7d974a3c0850006bd2260532b6f9b2788564b/IMG_1192.png)
+![Image Alt](https://github.com/omor0s/omor0s/blob/9faa0b6a99373c32d3481af28200305bd55528a5/IMG_9303.gif)![Image Alt](https://github.com/omor0s/omor0s/blob/9faa0b6a99373c32d3481af28200305bd55528a5/IMG_9303.gif)![Image Alt](https://github.com/omor0s/omor0s/blob/9faa0b6a99373c32d3481af28200305bd55528a5/IMG_9303.gif)
 ![Image Alt](https://github.com/omor0s/omor0s/blob/cb3163f95823ca572fb7a54ec62458a79dfaa127/Untitled73_20250913104444-removebg-preview.png)
 
 
