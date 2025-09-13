@@ -3,7 +3,7 @@
                                                          𓂃۶ৎ omo -- any pronouns >.<
 
 ![Image Alt](https://github.com/omor0s/omor0s/blob/6ab7d974a3c0850006bd2260532b6f9b2788564b/IMG_1192.png)
-![Image Alt](https://github.com/omor0s/omor0s/blob/effc1755df9f61e56d250c27e5a02e522a52fd2f/download%20(2).jpg)
+![Image Alt](https://github.com/omor0s/omor0s/blob/cb3163f95823ca572fb7a54ec62458a79dfaa127/Untitled73_20250913104444-removebg-preview.png)
 
 
 
@@ -11,11 +11,7 @@
 
 𓏵
 
-i like talking to people,,,pls...talk to me....
+artist ; hjk_k89 on x ^_^
 
 [AtaBook](https://omor0s.atabook.org/)  ⟡    [Rentry](https://rentry.co/om0ros) ⟡ [Help Palestine](https://arab.org/click-to-help/palestine/)
 
-![Image Alt](https://github.com/omor0s/omor0s/blob/1bd43955b7b5b8f994899232fc7be47daf7ae892/Paycheck%20%5Bsorry%20i%20forgot%20to%20post%20it%2C%20it%20was%20drawn%20a%20long%20time%20ago%F0%9F%98%94%F0%9F%98%94%5D.jpg)
-
-
-![Image Alt](https://github.com/omor0s/omor0s/blob/da6315bd224a7141c2f01aafe8f4f0f987368552/IMG_1192-fotor-20250728173449.png)
